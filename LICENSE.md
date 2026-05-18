@@ -1,4 +1,4 @@
-#  
+#  VIP escape tsunami for brainrots script is the best escape tsunami for brainrots script with private server access and no cooldown. Safe, reliable, and optimized for maximum
 
 
 
